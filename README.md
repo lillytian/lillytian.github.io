@@ -1,2 +1,2 @@
 # lillytian.github.io
-Personal website
+This is the personal website for The Bitches!
